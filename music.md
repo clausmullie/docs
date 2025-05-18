@@ -23,7 +23,7 @@ Sum 41
 Puddle of mud
 Rancid
 Pennywise
-
+The offspring
 
 ## Jazz
 
