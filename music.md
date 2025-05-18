@@ -17,6 +17,13 @@ Radiohead
 The National
 Arcade Fire
 TV on the Radio
+Linkin Park
+Blink 182
+Sum 41
+Puddle of mud
+Rancid
+Pennywise
+
 
 ## Jazz
 
@@ -58,10 +65,6 @@ Dub FX
 
 Jack Parrow
 
-Lana del Rey
-Dido
-Alya Nereo
-
 ## Other
 
 Alya Nereo
@@ -82,6 +85,8 @@ Doe Maar
 Electric Six
 Ferran Palau
 Bjork
+Lana del Rey
+Dido
 
 ## electronic
 
