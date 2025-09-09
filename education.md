@@ -246,3 +246,14 @@ And whether or not it is clear to you, no doubt the universe is unfolding as it 
 
 Desiderata - Max Ehrmann 
 
+## Rupi Kaur:
+
+capitalism got inside my head
+and made me think my only value
+is how much i produce
+for people to consume
+i measure my self-worth
+by how productive i’ve been
+but no matter how hard i work
+i still feel inadequate
+
