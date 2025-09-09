@@ -24,6 +24,8 @@ Puddle of mud
 Rancid
 Pennywise
 The offspring
+Rage against the machine
+
 
 ## Jazz
 
