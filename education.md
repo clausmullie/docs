@@ -160,6 +160,13 @@ With its own ageless eyes.
 
 One One One - Mevlana Rumi (1207 - 1273)
 
+
+Silence is the language of God, all else is poor translation. ~ Rumi
+
+In generosity and helping others be like a river. In compassion and grace be like the sun. In concealing others’ faults be like the night. In anger and fury be as if you have died. In modesty and humility be like the earth. In tolerance be like a sea. Either appear as you are or be as you appear.~ Rumi
+
+Very little grows on jagged rock. Be ground. Be crumbled, so wild flowers will come up where you are. ~ Rumi
+
 ## Other
 
 ### Being a student
